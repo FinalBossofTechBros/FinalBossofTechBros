@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any data analysis projects 
 - 📫 How to reach me , shoot me an email at hassanthedatascientist@gmail.com
 - 😄 Pronouns: Bro, Lord of the Frenzied Flame , he   
-- ⚡ Fun fact: I cannot play any of the outlast games without shitting myself 
+- ⚡ Fun fact: Sekiro will be the game that sends me to an early grave 
 
 <!---
 FinalBossofTechBros/FinalBossofTechBros is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
